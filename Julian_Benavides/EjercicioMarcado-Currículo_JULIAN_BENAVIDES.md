@@ -1,5 +1,5 @@
 # **JULIÁN FELIPE BENAVIDES NIEVES**
-### <h3 style="color:#999999">_**DISEÑADOR INDUSTRIAL / ESPECIALISTA EN PEDAGOGÍA DEL DISEÑO**_</h3>
+### _**DISEÑADOR INDUSTRIAL / ESPECIALISTA EN PEDAGOGÍA DEL DISEÑO**_
 
 #
 
@@ -33,7 +33,7 @@ o creador y se encuentran de forma ubicua en el producto de estas disciplinas, s
 ## **EXPERIENCIA**
 <br/>
 
-1. ### [_**UNIVERSIDAD EL BOSQUE**_](https://www.unbosque.edu.co/)
+### 1. [_**UNIVERSIDAD EL BOSQUE**_](https://www.unbosque.edu.co/)
 #### **Docente Línea de Medios Ciclo Básico y Específico, 2016 - Presente**
 *Encargado: Juan Sebastián Ávila - Coordinador Ciclo Específico*
 ##### Teléfono: (1) 648 9000 Ext.: 1133 - 1194
@@ -41,7 +41,7 @@ Docente y coordinador de asignaturas del ciclo básico y especifico de la línea
 
 <br/>
 
-2. ### [_**360 GRADOS**_](https://360-grados.com/site/)
+### 2. [_**360 GRADOS**_](https://360-grados.com/site/)
 #### **Director de Proyectos, noviembre de 2014 - diciembre de 2019**
 *Encargado: Eduardo Álvarez - Gerente Administrativa*
 ##### Teléfono: (1) 494 0922
@@ -50,7 +50,7 @@ seguimiento de los procesos adquisición de materias primas, coordinación de pr
 
 <br/>
 
-3. ### [_**UNIVERSIDAD NACIONAL DE COLOMBIA**_](https://unal.edu.co/)
+### 3. [_**UNIVERSIDAD NACIONAL DE COLOMBIA**_](https://unal.edu.co/)
 *Centro de Extensión Académica - Facultad de Artes*
 #### **Equipo de Interventoría y Mobiliario, junio de 2016 - enero de 2017**
 *Encargado: Aydee Ospina - Coordinador Interventoría Mobiliario y Señalética*
@@ -62,7 +62,7 @@ los aspectos técnicos de su área de conocimiento a que haya lugar.
 
 <br/>
 
-4. ### [_**UNIVERSIDAD NACIONAL DE COLOMBIA**_](https://unal.edu.co/)
+### 4. [_**UNIVERSIDAD NACIONAL DE COLOMBIA**_](https://unal.edu.co/)
 *Programa de Educación Permanente*
 ### **Curso Modelado Digital de Producto, 2011 - 2016**
 *Encargado: Mercedes Leonor Rodríguez Báez*
@@ -71,7 +71,7 @@ Desarrollos de cursos de extensión para capacitar a estudiantes, profesionales 
 
 <br/>
 
-5. ### [_**STRAZA**_](http://straza.com.co/)
+### 5. [_**STRAZA**_](http://straza.com.co/)
 ### **Diseñador Industrial Senior, mayo de 2013 - octubre 2014**
 *Encargado: Fernando Medina - Gerente Administrativo*
 ##### Teléfono: (1) 648 9000 ext.: 1133 - 1194
@@ -79,7 +79,7 @@ Dar respuesta a los requerimientos de diseño entregados por el área comercial,
 
 <br/>
 
-6. ### _**NORTE GRÁFICO**_
+### 6. _**NORTE GRÁFICO**_
 #### **Ejecutivo de Cuentas, mayo de 2012 - abril de 2013**
 *Encargado: Pilar Bolaños - Gerente Administrativa*
 ##### Teléfono: (1) 530 4310
@@ -87,7 +87,7 @@ Encargado de gestionar y liderar los proyectos de los clientes, desde el levanta
 
 <br/>
 
-7. ### _**ESPACIO ARQUITECTURA INDUSTRIAL**_
+### 7. _**ESPACIO ARQUITECTURA INDUSTRIAL**_
 #### **Diseñador Freelance, septiembre de 2010 - marzo de 2012**
 *Encargado: Jaime Becerra - Gerente General*
 ##### Teléfono: (1) 625 6422
@@ -95,7 +95,7 @@ Desarrollo de propuesta para espacios comerciales, arquitectura efímera, puntos
 
 <br/>
 
-8. ### [_**360 GRADOS**_](https://360-grados.com/site/)
+### 8. [_**360 GRADOS**_](https://360-grados.com/site/)
 #### **Diseñador Industrial, noviembre de 2007 - mayo de 2012**
 *Encargado: Eduardo Álvarez - Gerente Administrativa*
 ##### Teléfono: (1) 494 0922
